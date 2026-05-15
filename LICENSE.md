@@ -1,4 +1,4 @@
-# 
+# automatic nft sniper bot | multi-wallet-support + cross-market-arbitrage is the best nft sniper bot, featuring multi-wallet-support and cross-market-arbitrage. Fast, smart, and
 
 
 
